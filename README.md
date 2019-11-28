@@ -1,0 +1,2 @@
+# adaaja
+Izin gabung
